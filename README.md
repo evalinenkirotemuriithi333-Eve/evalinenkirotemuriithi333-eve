@@ -1,10 +1,8 @@
 
 ## About me
-# 👋 Hi, I'm Evaline
 
+👋 Hi, I'm Evaline
 I'm an aspiring **Computer Programmer** excited to grow my skills and build impactful projects.  
-
-**Pronouns:** She/Her  
 
 ## 🌱 Currently Learning
 - Python basics and problem-solving  
