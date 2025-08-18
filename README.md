@@ -36,4 +36,4 @@ I'm an aspiring **Computer Programmer** excited to grow my skills and build impa
 - 
 *-😃pronouns:**She/Her
 
---✈️ I love traveling the world as much as exploring new technologies.
+-🤪Fun facts..*✈️ I love traveling to the world as much as exploring new technologies.
