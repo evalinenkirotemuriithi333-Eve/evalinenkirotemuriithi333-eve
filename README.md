@@ -1,7 +1,7 @@
 
 ## About me
 
-👋 Hi, I'm Evaline
+👋 Hi, I'm Evaline,
 I'm an aspiring **Computer Programmer** excited to grow my skills and build impactful projects.  
 
 ## 🌱 Currently Learning
