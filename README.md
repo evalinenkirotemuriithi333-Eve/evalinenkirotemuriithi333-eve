@@ -30,7 +30,7 @@ I'm an aspiring **Computer Programmer** excited to grow my skills and build impa
 
 ## 📫 How to Reach Me
 - 📧 Email: evalinenkirotemuriithi333@gmail.com
-- 🐦 Twitter/X: @evalinenkirote1
+- 🐦 Twitter/X:@evalinenkirote1
   
 *-😃pronouns:**She/Her
 
